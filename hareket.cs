@@ -1,1 +1,0 @@
-hareket bundan sonra böyle.
